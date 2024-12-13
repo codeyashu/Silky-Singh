@@ -15,7 +15,7 @@ I am **Silky Singh**, and I’ve decided to step up and nominate myself as an of
 
 1. **Community Building**: I’ll bring everyone together through fun events, workshops, and better communication. Whether it's festive celebrations or brainstorming over chai, let’s bond!
    
-2. **Maid & Cook Management**: I’ll take on the challenge of addressing the ongoing maid and cook issues—because who else will survive the “kitchen tantrums” and ensure everyone’s rotis and sabzis are delivered on time?
+2. **Househelp**: I will address the ongoing issues with consistency, uneven rates, and lack of proper verification and management.
  
 3. **Maintenance & Infrastructure**: From fixing that forever-leaking pipeline to improving waste management, I’ll focus on practical and timely solutions. No more waiting for miracles!
    
