@@ -15,12 +15,17 @@ I am **Silky Singh**, and I’ve decided to step up and nominate myself as an of
 
 1. **Community Building**: I’ll bring everyone together through fun events, workshops, and better communication. Whether it's festive celebrations or brainstorming over chai, let’s bond!
    
-3. **Maid & Cook Management**: I’ll take on the challenge of addressing the ongoing maid and cook issues—because who else will survive the “kitchen tantrums” and ensure everyone’s rotis and sabzis are delivered on time?  
-4. **Maintenance & Infrastructure**: From fixing that forever-leaking pipeline to improving waste management, I’ll focus on practical and timely solutions. No more waiting for miracles!  
-5. **Short & Sweet Meetings**: Say goodbye to committee meetings that feel like binge-watching a series. I promise action-packed and quick discussions with no cliffhangers.  
-6. **Transparency in Decisions**: Every resident’s voice will count, and I’ll make sure all decisions and expenditures are as clear as the morning sky after monsoon season.  
-7. **Security Enhancements**: I’ll work on upgrading our security systems and ensuring our neighborhood is safe and sound, so we can sleep peacefully (or binge-watch Netflix without worry).  
-8. **Facilities for All**: From play areas for kids to benches for senior citizens, I’ll ensure we cater to everyone’s needs, making our community truly inclusive.  
+2. **Maid & Cook Management**: I’ll take on the challenge of addressing the ongoing maid and cook issues—because who else will survive the “kitchen tantrums” and ensure everyone’s rotis and sabzis are delivered on time?
+ 
+3. **Maintenance & Infrastructure**: From fixing that forever-leaking pipeline to improving waste management, I’ll focus on practical and timely solutions. No more waiting for miracles!
+   
+4. **Short & Sweet Meetings**: Say goodbye to committee meetings that feel like binge-watching a series. I promise action-packed and quick discussions with no cliffhangers.
+   
+5. **Transparency in Decisions**: Every resident’s voice will count, and I’ll make sure all decisions and expenditures are as clear as the morning sky after monsoon season.
+    
+6. **Security Enhancements**: I’ll work on upgrading our security systems and ensuring our neighborhood is safe and sound, so we can sleep peacefully (or binge-watch Netflix without worry).
+    
+7. **Facilities for All**: From play areas for kids to benches for senior citizens, I’ll ensure we cater to everyone’s needs, making our community truly inclusive.  
 
 
 ---
